@@ -1,1 +1,1 @@
-# Gayatri.io
+# zany.io
